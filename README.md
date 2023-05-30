@@ -1,0 +1,1 @@
+# zelda-kingdom-of-tears-wiki
